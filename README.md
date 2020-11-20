@@ -1,0 +1,2 @@
+# responsabilty
+termo de responsabilidade
